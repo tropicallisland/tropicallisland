@@ -3,5 +3,5 @@
 <div align="center">
 
 [strawpage](https://mewbites.straw.page/)  [atabook](https://mewbites.atabook.org/)  [rentry♡](https://rentry.co/gurire)
-<div align=""> c*h enc (im alone all the time (,; ⩌ ;,) . inspiration with ask (whisper or atabook, thanks)
+<div align=""> c*h enc (im alone all the time (,; ⩌ ;,)
 <div align="right">
