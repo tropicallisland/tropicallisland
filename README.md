@@ -3,5 +3,4 @@
 <div align="center">
 
 [strawpage](https://mewbites.straw.page/)  [atabook](https://mewbites.atabook.org/)  [rentry♡](https://rentry.co/gurire)
-<div align=""> c*h enc ((mostly im alone (,; ⩌ ;,)
-<div align="right">
+<div align="right"> 
