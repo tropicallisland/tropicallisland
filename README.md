@@ -2,6 +2,10 @@
 <img align="center" src="https://i.postimg.cc/SRnrzNzr/3323333333333artfuklll.png"width="650">
 <div align="center">
 
-[strawpage](https://mewbites.straw.page/)  [atabook](https://mewbites.atabook.org/)  [rentry♡](https://rentry.co/gurire)
+[strawpage](https://mewbites.straw.page/) . [atabook](https://mewbites.atabook.org/) . [rentry♡](https://rentry.co/gurire)
 <div align="center"> 
-c*h enc (^ . ^) no problem with it im alone mostly all the time
+no very active on pt . c*h enc dont ask im mostly afk or busy 
+
+i block freely if weird interaction, dni ships & dont looking for friends (not mentally well)
+
+if i miss a whisper, please leave message it in atabook! ty
