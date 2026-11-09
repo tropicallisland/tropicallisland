@@ -4,7 +4,7 @@
 
 [strawpage](https://mewbites.straw.page/) . [atabook](https://mewbites.atabook.org/) . [rentry♡](https://rentry.co/gurire)
 <div align="center"> 
-not very active on pt . c*h enc dont ask im mostly semiafk or offtab
+not very active on pt . c*h enc dont ask im mostly busy or offtab
 
 i block freely if weird interaction, dni ships & dont looking for friends (not mentally well)
 
