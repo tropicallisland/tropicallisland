@@ -1,5 +1,5 @@
 <div align="center">
-<img align="center" src="https://i.postimg.cc/SRnrzNzr/3323333333333artfuklll.png"width="560">
+<img align="center" src="https://i.postimg.cc/SRnrzNzr/3323333333333artfuklll.png"width="569">
 <div align="center">
 
 [strawpage](https://mewbites.straw.page/) . [atabook](https://mewbites.atabook.org/) . [rentry♡](https://rentry.co/gurire)
