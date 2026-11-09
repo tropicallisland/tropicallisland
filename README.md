@@ -8,4 +8,4 @@ not very active on pt . c*h enc dont ask im mostly afk or busy
 
 i block freely if weird interaction, dni ships & dont looking for friends (not mentally well)
 
-if i miss a whisper, please leave message in atabook! ty
+if i miss a whisper, please leave it on atabook! ty
